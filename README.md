@@ -8,3 +8,5 @@ So then what will you do
 See ... a conundrum ...
 
 whats so wrong about having a [thought experiment](https://en.wikipedia.org/wiki/Thought_experiment) that einstein guy did it or whatever, and look at what he ended up accomplishing
+
+o9PuAm7d0PA "so tell me you love me ... only for tonight ... only for the night"
